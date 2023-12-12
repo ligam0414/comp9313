@@ -14,7 +14,7 @@ HD
 
 ## Comments
 
-The course itself is probably one of the easiest courses I have done at UNSW. But the teaching team is really bad. Question 3 in the final was ambiguous and they didn't even bother to make an announcement during the exam, a lot of people misunderstood the question and got marks deducted.
+The course itself is probably one of the easiest courses I have done at UNSW. But the teaching team is really bad. Question 3 in the final was ambiguous and they didn't even bother to make an announcement during the exam, a lot of people misunderstood the question and got marks deducted. Could have scored 100 if they made an announcement
 
 - Practical Applications: 3/5. The second half of the course is too shallow, only doing the theory without any real application
 - Engaging Lectures: 1/5, This course is basically a rip-off from stamford course. watch youtube instead of listening to the lecture recordings.
