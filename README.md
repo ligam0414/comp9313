@@ -2,15 +2,13 @@
 
 ## project marks
 
-full marks
+project 1: full marks
+project 2: full marks
+project 3: 90+
 
 ## final exam
 
 HD
-
-## Overall
-
-90+
 
 ## Comments
 
